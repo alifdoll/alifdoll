@@ -1,5 +1,5 @@
 Hi there 👋
 
-Iam Alif and i think i have mild depression.
+I am Alif and i think i have mild depression.
 
 Stay Epic Stay Depressed 👊👊
