@@ -1,5 +1,5 @@
 Hi there 👋
 
-I am Alif and i think i have mild depression.
+I am Alif and i think I'm an EPIC GAMER
 
-Stay Epic Stay Depressed 👊👊
+Stay Epic Fellow Gamer 👊👊
