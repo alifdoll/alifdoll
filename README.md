@@ -12,7 +12,7 @@ Stay Epic Fellow Gamer 👊👊
 
 📺 Check My Youtube Channel
 <!-- YOUTUBE:START -->
-- [ArthourOS Movie Stuidio](https://www.youtube.com/channel/UC_fBbHbRzhUBHvIZaAnFD2A)
+- [ArthourOS Movie](https://www.youtube.com/channel/UC_fBbHbRzhUBHvIZaAnFD2A)
 <!-- YOUTUBE:END -->
 
 
