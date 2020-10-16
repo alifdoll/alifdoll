@@ -16,10 +16,4 @@ Stay Epic Fellow Gamer 👊👊
 <!-- YOUTUBE:END -->
 
 
-<br />
-
----
-
-<img align="left" alt="codeSTACKr's Github Stats" src="https://github-readme-stats.vercel.app/api?username=alifdoll&show_icons=true&hide_border=true&count_private=true" />
-
 
