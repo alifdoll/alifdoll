@@ -16,4 +16,10 @@ Stay Epic Fellow Gamer 👊👊
 <!-- YOUTUBE:END -->
 
 
+🎤 Check My Podcast
+<!-- YOUTUBE:START -->
+- [Lore & Myths.](https://open.spotify.com/show/30IYGvHsrX9DM7p9prsPuK)
+<!-- YOUTUBE:END -->
+
+
 
